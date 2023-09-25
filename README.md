@@ -1,1 +1,24 @@
 # facts-about-united-kingdom
+
+# United Kingdom
+
+- [In England, a man named William Shakespeare was one of the first people to receive the COVID-19 vaccine.](https://thefactbase.com/in-england-a-man-named-william-shakespeare-was-one-of-the-first-people-to-receive-the-covid-19-vaccine)
+- [Turning back the clock hands of Big Ben takes a total of five hours.](https://thefactbase.com/turning-back-the-clock-hands-of-big-ben-takes-a-total-of-five-hours)
+- [All British tanks are equipped with Boiling Vessels, which are essentially tea-making facilities.](https://thefactbase.com/all-british-tanks-are-equipped-with-boiling-vessels-which-are-essentially-tea-making-facilities)
+- [The shortest war in history was between the British Empire and the East African island state of Zanzibar in 1896. Zanzibar surrendered after 38 minutes.](https://thefactbase.com/the-shortest-war-in-history-was-between-the-british-empire-and-the-east-african-island-state-of-zanzibar-in-1896-zanzibar-surrendered-after-38-minutes)
+- [Buckingham Palace has 775 rooms.](https://thefactbase.com/buckingham-palace-has-775-rooms)
+- [In the UK all horses, donkeys and ponies must have a horse passport.](https://thefactbase.com/in-the-uk-all-horses-donkeys-and-ponies-must-have-a-horse-passport)
+- [Windsor Castle is the largest royal home in the world.](https://thefactbase.com/windsor-castle-is-the-largest-royal-home-in-the-world)
+- [Sometimes people sneeze many more times than just two or three. Donna Griffiths, a woman in the UK sneezed for 978 days. At the beginning of this sneezing episode, she sneezed once every minute.](https://thefactbase.com/sometimes-people-sneeze-many-more-times-than-just-two-or-three-donna-griffiths-a-woman-in-the-uk-sneezed-for-978-days-at-the-beginning-of-this-sneezing-episode-she-sneezed-once-every-minute)
+- [The UK and Portugal hold the longest standing alliance in the world. It was ratified in 1386 and is still in force.](https://thefactbase.com/the-uk-and-portugal-hold-the-longest-standing-alliance-in-the-world-it-was-ratified-in-1386-and-is-still-in-force)
+- [The Queen is the only person in the United Kingdom who does not need a driving license in order to drive. The 93-year-old loves driving, but after Prince Philip’s recent traffic accident she’s agreed to stop driving as well.](https://thefactbase.com/the-queen-is-the-only-person-in-the-united-kingdom-who-does-not-need-a-driving-license-in-order-to-drive-the-93-year-old-loves-driving-but-after-prince-philip-s-recent-traffic-accident-she-s-agreed-to-stop-driving-as-well)
+- [Under the Salmon Act of 1986, British Parliament declared it illegal to handle salmon in "suspicious circumstances" but it did not define what circumstances could be considered suspicious.](https://thefactbase.com/under-the-salmon-act-of-1986-british-parliament-declared-it-illegal-to-handle-salmon-in-suspicious-circumstances-but-it-did-not-define-what-circumstances-could-be-considered-suspicious)
+- [Buckingham Palace has 775 rooms. These include 19 State rooms, 52 Royal and guest bedrooms, 188 staff bedrooms, 92 offices and 78 bathrooms.](https://thefactbase.com/buckingham-palace-has-775-rooms-these-include-19-state-rooms-52-royal-and-guest-bedrooms-188-staff-bedrooms-92-offices-and-78-bathrooms)
+- [A British gymnast survived a fall from a fourth story window because he went into a somersault and came down on two feet.](https://thefactbase.com/a-british-gymnast-survived-a-fall-from-a-fourth-story-window-because-he-went-into-a-somersault-and-came-down-on-two-feet)
+- [In England, in pubs or bars, you can have drinks but you are not allowed to get drunk.](https://thefactbase.com/in-england-in-pubs-or-bars-you-can-have-drinks-but-you-are-not-allowed-to-get-drunk)
+- [You probably won’t find light switches inside a bathroom in the UK, because of the fear of electrocution.](https://thefactbase.com/you-probably-won-t-find-light-switches-inside-a-bathroom-in-the-uk-because-of-the-fear-of-electrocution)
+- [A Nigerian woman was caught entering the UK with 104 kg of snails in her baggage.](https://thefactbase.com/a-nigerian-woman-was-caught-entering-the-uk-with-104-kg-of-snails-in-her-baggage)
+- [The first fish and chip restaurant was opened in 1860 by a Jewish immigrant.](https://thefactbase.com/the-first-fish-and-chip-restaurant-was-opened-in-1860-by-a-jewish-immigrant)
+- [The Queen of the UK is the legal owner of one-sixth of the Earth’s land surface.](https://thefactbase.com/the-queen-of-the-uk-is-the-legal-owner-of-one-sixth-of-the-earth-s-land-surface)
+- [Smith, Jones and Williams are the most common names in UK.](https://thefactbase.com/smith-jones-and-williams-are-the-most-common-names-in-uk)
+- [The British royal family isn't allowed to play Monopoly.](https://thefactbase.com/the-british-royal-family-isn-t-allowed-to-play-monopoly)
